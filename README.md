@@ -2,4 +2,4 @@
 
 hello world!
 
-my score fucked
+If I were you, I would just love me.
